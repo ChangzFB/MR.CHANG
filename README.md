@@ -1,6 +1,6 @@
 # MR.CHANGCUTERZ
 Crack Bocil² Goblok
-![anime-cute](https://user-images.githubusercontent.com/110714229/189511093-a3f33b06-ce67-4214-b2b2-dfebd8ab5bca.gif)
+![502593-bayi-ngedance](https://user-images.githubusercontent.com/98962829/190944727-60423022-3cbe-411c-984e-f0028698b492.gif)
 
 Fuck You..!!
 Ga Butuh Komentarmu & Ga Butuh Pedulimu.
